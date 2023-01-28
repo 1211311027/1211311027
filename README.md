@@ -1,7 +1,7 @@
 ### heya o/ >///< 🌪
 
 tis an acc fow schoow asignmens a-and pwojects o-onwy (no i dont actually talk liek that)<br/>
-follow me on [@ronylee11](https://www.github.com/ronylee11)
+fowwow mie o-on [@ronylee11](https://www.github.com/ronylee11)
 
 <!--
 **1211311027/1211311027** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
